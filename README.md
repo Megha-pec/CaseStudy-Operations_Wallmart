@@ -10,8 +10,9 @@ Salient components of the case study:
 4. Explaining the future prospects
 
 Some resources to refer :
-1.https://panmore.com/walmart-generic-competitive-strategy-intensive-growth-strategies
-2. https://panmore.com/walmart-pestel-analysis-recommendations-case-study
-3. https://datahawk.co/blog/walmart-supply-chain-challenges-and-solutions/
-4. https://businessmodelanalyst.com/walmart-swot-analysis/
-5. https://panmore.com/walmart-operations-management-10-decisions-areas-productivity-case-study-analysis
+1.https://panmore.com/walmart-generic-competitive-strategy-intensive-growth-strategies /n
+2. https://panmore.com/walmart-pestel-analysis-recommendations-case-study /n
+3. https://datahawk.co/blog/walmart-supply-chain-challenges-and-solutions/ /n
+4. https://businessmodelanalyst.com/walmart-swot-analysis/    /n
+5. https://panmore.com/walmart-operations-management-10-decisions-areas-productivity-case-study-analysis   /n
+
